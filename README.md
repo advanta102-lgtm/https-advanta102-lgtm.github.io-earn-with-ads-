@@ -1,2 +1,2 @@
-# https-advanta102-lgtm.github.io-earn-with-ads-
+# https//advantaearnfromads.com
 AdVanta Earn From Ads
